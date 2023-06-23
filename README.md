@@ -4,6 +4,6 @@ For him to inform me of a donation
 # first day
 # second day
 # third day
-# more more morkdmhbhdefdefdgjhjhhjgfgkl;lkjhgfdssdfrgthyjukijhcjgvdfjjkjljfgjchjkcgjghjgjkfdggdfdngehrfghg
+# more more morkdmhbhdefdefdjjddjdgjhjhhjgfgkl;lkjhgfdssdfrgthyjukijhcjgvdfjjkjljfgjchjkcgjghjgjkfdggdfdngehrfghg
 jhjhj
 
