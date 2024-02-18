@@ -6,7 +6,7 @@ For him to inform me of a donation
 # third day
 # more mjkjre 😎😎😎😎
 😎😎😎
-# the summer vication is here dfkccdxjfrhjhgevhgxlgchdxchfkxcncfncdbnfhbfkfmfksmdjhjmfjmhy
+# the summer vication is here dfkcfcdxjfrhjhgevhgxlgchdxchfkxcncfncdbnfhbfkfmfksmdjhjmfjmhy
 # ff 👈💪💪🎤😊😵🤪 kfhdjrdfdfc
 - [ ] \(Optional) Open a followup issue
 - [X] sdfghjkl;xnxvnx
