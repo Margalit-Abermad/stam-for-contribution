@@ -4,7 +4,7 @@ For him to inform me of a donation
 # first day
 # second day
 # third day
-# more mkjre 😎😎😎😎
+# more mkjres 😎😎😎😎
 😎😎😎
 # the summer vication is here dfvkegcdxjykfrhglsevlhrgbxjlznspngjchdfknlfchldnfhkbjnfktxsmdhfjhy
 # ff 👈💪💪🎤😊😵🤪 kfhdjrdfdfc
