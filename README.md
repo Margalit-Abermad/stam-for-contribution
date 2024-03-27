@@ -7,7 +7,7 @@ For him to inform me of a donation
 # more mkjres 😎😎😎😎
 😎😎😎
 # the summer vication is here dfvkegdxjkfsrhglsebvlhrgbxjlznspngjchxdfknlfchlnfhkbjnfktxsmdhfjhy
-# ff 👈💪💪🎤😊😵🤪 kfhdjrdfdfcl
+# ff 👈💪💪🎤😊😵🤪 kfhdjrdfdfclr
 - [ ] \(Optional) Open a followup issue
 - [X] sdfghjkl;xnxvnx
 fghhnmj,kd
